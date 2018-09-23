@@ -3,3 +3,5 @@
 I'm Yifei Dong , studying in _Yuanpei College ,Peking University_.
 My favorite subject is chemistry ,and now I'm learning chemistry in *CCME(College of Chemistry and Molecular Engineering)* .
 I feel very happy and enthusiastic ,and have the ambition to learn well.
+My Wechat is yassuo666666,and my QQ number is 335192475.
+I also have a bilibili account:[SSSSSSSDDDDDDD](https://space.bilibili.com/12835588/#/)
