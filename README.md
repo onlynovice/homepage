@@ -10,4 +10,4 @@ My Wechat is yassuo666666,and my QQ number is 335192475.:blush:
 
 I also have a bilibili account:[SSSSSSSDDDDDDD](https://space.bilibili.com/12835588/#/):syringe::droplet::cow::beer:
 
-I like single player games such as Fallout 4 ,Call of Duty ,battlefield and etc. My steamaccount is 335192475 ,join me and let's play together!!:stuck_out_tongue_closed_eyes:
+I like single player games such as Fallout 4 ,Call of Duty ,Battlefield and etc. My steamaccount is 335192475 ,join me and let's play together!!:stuck_out_tongue_closed_eyes:
