@@ -1,9 +1,8 @@
 # homepage
 
-I'm Yassuo , studying in _Yuanpei College ,Peking University_.
-
-Wechat : yassuo666666
+I'm Yassuo , studying in _YPC, PKU_.
 
 QQ : 335192475
 
+Email : 335192475@qq.com
 
