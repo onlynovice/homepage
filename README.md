@@ -1,5 +1,3 @@
 # HomePage
-- I'm Yassuo
-- Studying in : YPC, PKU
-- QQ : 335192475
+- 董翌飞
 - Email : 335192475@qq.com
